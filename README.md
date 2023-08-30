@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Web Development**
 
-- 👨‍💻 Here is my Instagram link [https://instagram.com/julietikeji?igshid=OGQ5ZDc2ODk2ZA==](https://instagram.com/julietikeji?igshid=OGQ5ZDc2ODk2ZA==)
+- 👨‍💻 Here is my Instagram link [https://www.instagram.com/julietikeji/]
 
 - 📫 How to reach me **julietikeji25@gmail.com**
 
